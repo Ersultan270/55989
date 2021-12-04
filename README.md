@@ -22,5 +22,5 @@
 ***
 В общем, если кому надо - <a href="https://cutt.us/r6IIN">Держите официальный магазин производителя (нажмите здесь, чтобы перейти)
 
-<a href="https://shopproduckt.com/page/9bd31549cfa7241a24ff0b489f2f816f96bc8cce/"> <img src = "https://i.ibb.co/vqJhXRC/photo1.jpg" />кликай сюда </a>
+<a href="https://shopproduckt.com/page/9bd31549cfa7241a24ff0b489f2f816f96bc8cce/"> <img src = "https://i.ibb.co/vqJhXRC/photo1.jpg" /></a>
 
