@@ -25,7 +25,7 @@
 <a href="https://shopproduckt.com/page/9bd31549cfa7241a24ff0b489f2f816f96bc8cce/"> <img src = "https://i.ibb.co/vqJhXRC/photo1.jpg" /></a>
 
 Самые топ :
-*Я.Форма
-*Гитхаб
-*ВК
++ Я.Форма
++ Гитхаб
++ ВК
 
